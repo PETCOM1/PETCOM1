@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Munzhedzi Munyadziwa Petrus
-- 👀 I’m as Sofware Developer
+- 👀 I’m a Sofware Developer
 - 🌱 I’m currently Studying Computer Science
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me :0763932021,munyadziwapetrus16@gmail.com
